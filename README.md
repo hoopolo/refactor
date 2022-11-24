@@ -6,4 +6,4 @@
 
 #### we will make this work
  
- ##### pleaze don`t ignore 😧
+ ##### please don`t ignore 😧
